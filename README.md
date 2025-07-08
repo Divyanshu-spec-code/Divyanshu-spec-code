@@ -32,7 +32,7 @@
 
 ### 📫 Connect with Me
 
-- 📧 Email: divyanshupant@example.com   
+- 📧 Email: divyanshupant30@gmail.com   
 - 💼 LinkedIn: [linkedin.com/in/divyanshupant](https://www.linkedin.com/in/divyanshupant)
 
 ---
